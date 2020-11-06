@@ -21,7 +21,7 @@ This page is for my contact information
 
 Githhub: https//:github.com/kroarguello
 email: kroarguelloadel@gmail.com
-LinkedIn:
+LinkedIn:http://linkedin.com/in/delmy-arguello-0904871b5
 
 
 
